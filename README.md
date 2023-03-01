@@ -1,4 +1,4 @@
-# ![Логотип NeuroStartUp](img/NeuroStartUpIcon.png) NeuroStartUp
+# ![Кролик](https://pbs.twimg.com/media/E5ZZ26vWQAUzp5S.jpg)
 
 **МЕНЯ ЗОВУТ АЛЕКСЕЙ** Эта вся информация, которую я готов предоставить в публичный доступ
 
